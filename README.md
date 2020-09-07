@@ -1,4 +1,13 @@
 Personal page of Sanket Rane
+============================
 
-Sanket is a **Theoretical Immunologist** who is completely obssesed with the *Darwinian theory* and would do anything in his power to explain any question in Biology in the light of Evolution.
-If you ever wish to challenge him to play a friendly game of Tennis or a deathly chess battle just simply drop an email at <sanketrn@gmail.com>
+
+Sanket is a **Theoretical Immunolgist** and an ardent follower of the *Darwinian Theory of Natural Selection*. Loves to use movie analogies and to play pretend in solving day-to-day problems. Will do everything in his power to explain a complex biological or behavioral issue in the light of evolution.
+
+If you fancy challenging Sanket to a friendly Tennis match or a deathly chess battle then at once reach to him at <sanketrn@gmail.com>
+
+By now the most probable event must have ensued!
+
+
+--------------------------------00---------------------------------
+
